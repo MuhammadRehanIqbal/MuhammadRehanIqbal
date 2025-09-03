@@ -52,7 +52,7 @@ Senior Full-Stack Developer with **6+ years of experience** in designing and bui
 
 ## Education
 **M.C.S (Master in Computer Science)** – Gomal University, Dera Ismail Khan  
-**CGPA:** 3.45 | **2015 – 2017**
+**CGPA:** 3.5 | **2015 – 2017**
 
 ---
 
